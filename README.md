@@ -1,0 +1,1 @@
+# trustygmbh2020-ebay-template
